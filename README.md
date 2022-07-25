@@ -71,4 +71,4 @@ Copy right @ 2022 Xuan Huy Bui
 
 [My linkedIn](https://www.linkedin.com/in/huy-bui-xuan-b0b079238/)
 
-[My email](huybuixuan87@gmail.com)
+My emal: huybuixuan87@gmail.com
